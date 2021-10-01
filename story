@@ -1,1 +1,1 @@
-    Once upon a time in a jungle, lived a monkey on a tree near the lake..
+    Once upon a time in a jungle, lived a monkey on a tree near the lake.. In the same lake lived a crocodile and his wife..
